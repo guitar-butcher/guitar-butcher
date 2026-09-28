@@ -1,16 +1,17 @@
-## Hi there 👋
+<table>
+    <tr>
+      <td>
+        <img src="https://file.garden/amKtTawQyVZP6QLX/ezgif-2fa23be87b6e121a.gif" width="201" alt="Your Image">
+      </td>
+      <td align="left">
+          void / sylvian
+          tkn ; 19 mlm 
+          anger issues
 
-<!--
-**guitar-butcher/guitar-butcher** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+[wip](wip)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+     
+  </table>
+</div>‎
+
