@@ -1,5 +1,5 @@
 <div id="text" align="center">
-
+   ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀PC friendly
   <img src="https://files.catbox.moe/3ow4ya.gif" alt="Pen" width="800">
 
 <table>
