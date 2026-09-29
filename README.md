@@ -14,8 +14,6 @@ void or ${\color{#db828d} sylvian}$⠀ ${\color{#cf4068} ⏖}$ ⠀⠀tkn ⠀ ⠀
 19 ⠀ ⠀ ⠀ mlm⠀ ⠀ ⠀ ⠀ ⠀ ${\color{#cf4068} esfp}$ 
 
  c ${\color{#db828d} +}$  h freely ${\color{#cf4068} ꒱}$  ⠀ ⠀ ⠀ ⠀ ⠀this still a wip, working on links
-
- have this half assed readme for now <img src="https://files.catbox.moe/f2wwv7.gif" alt="Pen" width="500">
 </div>
 </td>
 </tr>
