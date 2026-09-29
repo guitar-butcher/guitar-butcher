@@ -5,7 +5,7 @@
 <table>
 <tr>
 <td style="vertical-align: top;">
-  <img src="https://files.catbox.moe/70wu62.gif" alt="Pen" width="400">
+  <img src="https://files.catbox.moe/70wu62.gif" alt="Pen" width="200">
 </td>
 
 <td style="vertical-align: top;">
