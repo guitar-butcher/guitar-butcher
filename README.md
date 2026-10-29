@@ -1,4 +1,5 @@
-<div align="center"> <img width="300" alt="Screen recording 2026-10-28 10 04 59 PM" src="https://github.com/user-attachments/assets/66ef6d61-ed61-4351-8758-b5fd22ac7a0f" />
+<div align="center"><img width="400" alt="HVywTndaoAAtSE___1_-removebg-preview" src="https://github.com/user-attachments/assets/0c989ba6-c5a2-4ad8-bf49-449bbef056a8" />
+
 
 
 
