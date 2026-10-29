@@ -1,3 +1,5 @@
+<div align="center"> <img width="300" alt="Screen recording 2026-10-28 10 04 59 PM" src="https://github.com/user-attachments/assets/66ef6d61-ed61-4351-8758-b5fd22ac7a0f" />
+
 
 
 <div id="text" align="center"> ⠀  <a href="https://github.com/coldatIantic">boyfriend</a> 
