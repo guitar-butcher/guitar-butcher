@@ -1,8 +1,6 @@
 <div align="center">
     
-  ill make this cute someday
-    
-<img width="400" alt="HVywTndaoAAtSE___1_-removebg-preview" src="https://github.com/user-attachments/assets/0c989ba6-c5a2-4ad8-bf49-449bbef056a8" />
+19 yo male heavy tord kin   rmk everthn whenver
 
 
 
