@@ -1,6 +1,11 @@
 <div align="center">
     
-19 yo   male  
+<sub>19 yo   male  
+
+
+ <a href="https://mybrainirotting.atabook.org/"><sub>ata</a>
+
+
 
 <img width="200" alt="HVVt0nwXwAAJXqu-removebg-preview" src="https://github.com/user-attachments/assets/8ee217ff-23fb-46ff-9f70-6f73e30cbb0c" />
 
