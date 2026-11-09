@@ -1,6 +1,8 @@
 <div align="center">
     
-19 yo male heavy tord kin   rmk everthn whenver
+
+
+<img width="200" alt="HVVt0nwXwAAJXqu-removebg-preview" src="https://github.com/user-attachments/assets/8ee217ff-23fb-46ff-9f70-6f73e30cbb0c" />
 
 
 
