@@ -8,7 +8,6 @@
 
 
 
-<img width="300"  alt="Untitled2_20261116234255" src="https://github.com/user-attachments/assets/280037d2-adc2-4ab1-a3fd-b515d537a979" />
 
 
 
