@@ -1,4 +1,12 @@
 <div align="center">
+
+
+
+<sub>THE nominated loser <a href="https://github.com/sydsterz">@sydsterz</a>
+
+
+
+
     
 <sub>19 yo   male  
 
