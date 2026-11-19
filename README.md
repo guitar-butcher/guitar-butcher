@@ -12,7 +12,8 @@
 
 <img src="https://files.catbox.moe/xduc84.png" width="560" align="center">
 
- <a href="https://mybrainirotting.atabook.org/"><sub>ata</a>
+ <a href="https://mybrainirotting.atabook.org/"><sub>ata</a>  <a href="https://guns.lol/20pm"><sub>gunslol</a>
+
 
 
 
