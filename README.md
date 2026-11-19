@@ -10,7 +10,7 @@
     
 <sub>19 yo   male  
 
-<img src="https://files.catbox.moe/02crdd.png" width="500" align="center">
+<img src="https://files.catbox.moe/xduc84.png" width="560" align="center">
 
  <a href="https://mybrainirotting.atabook.org/"><sub>ata</a>
 
