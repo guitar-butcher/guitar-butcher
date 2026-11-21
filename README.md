@@ -8,7 +8,7 @@
 
 
     
-<sub>19 yo   male  
+<sub>19 yo   male  nd heavy tord kin
 
 <img src="https://files.catbox.moe/xduc84.png" width="560" align="center">
 
