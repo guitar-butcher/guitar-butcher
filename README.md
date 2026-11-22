@@ -2,7 +2,7 @@
 
 
 
-<sub>THE gayest person <a
+<sub>THE biggest loser <a
                              href="https://github.com/sydsterz">@syd</a>
 <img width="200" alt="8240" src="https://github.com/user-attachments/assets/39e15213-3a36-4033-a6af-e8d946e0a478" />
 
