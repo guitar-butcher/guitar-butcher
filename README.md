@@ -33,7 +33,7 @@
 
 </summary>
   <p></p>
-   <a href="https://github.com/coldatIantic"><sub>cutie pie</sub></a>       
+         
    ㅤ<a href="https://github.com/sydsterz"><sub>syd</sub></a>       
    ㅤ<a href="https://github.com/rinsagi"><sub>cari</sub></a>      
    ㅤ<a href="https://github.com/deepaffection"><sub>niko</sub></a> 
