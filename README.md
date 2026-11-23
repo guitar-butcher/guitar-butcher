@@ -2,17 +2,18 @@
 
 
 
-<sub>THE biggest loser <a
+<sub>chill im easy <a
                              href="https://github.com/sydsterz">@syd</a>
-<img width="200" alt="8240" src="https://github.com/user-attachments/assets/39e15213-3a36-4033-a6af-e8d946e0a478" />
+
 
 
 
 
     
-<sub>19 yo   male  nd heavy tord kin
+<sub>19 yo   male  this is wip cuz im lazzy
 
-<img src="https://files.catbox.moe/xduc84.png" width="560" align="center">
+<img width="300" alt="8328" src="https://github.com/user-attachments/assets/9bbd5e86-efbc-4d5b-898e-85988eb8da7e" />
+
 
  <a href="https://mybrainirotting.atabook.org/"><sub>ata</a>  <a href="https://guns.lol/20pm"><sub>gunslol</a>
 
