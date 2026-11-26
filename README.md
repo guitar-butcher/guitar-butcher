@@ -2,7 +2,7 @@
 
 
 
-<sub>chill im easy <a
+<sub>chill im easy, <a
                              href="https://github.com/sydsterz">@syd</a>
 
 
