@@ -15,7 +15,7 @@
 <img width="300" alt="8328" src="https://github.com/user-attachments/assets/9bbd5e86-efbc-4d5b-898e-85988eb8da7e" />
 
 
- <a href="https://mybrainirotting.atabook.org/"><sub>ata</a>  <a href="https://guns.lol/20pm"><sub>gunslol</a>
+ <a href="https://mybrainirotting.atabook.org/"><sub>ata</a>  <a href="https://restlessending.straw.page"><sub>straw wip</a>
 
 
 
